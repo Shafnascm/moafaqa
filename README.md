@@ -1,2 +1,0 @@
-# moafaqa
-Moafaqa Typing Center
